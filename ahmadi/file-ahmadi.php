@@ -1,1 +1,0 @@
-hendro pardiyanto
